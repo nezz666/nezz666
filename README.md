@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Currently Studying in STT-NF<br>I'm a graphic designer and software engineer.<br>I'm Currently Learning Cyber Security
+I'm Currently Studying in STT-Nurul Fikri<br>I'm a Graphic Designer and Software engineer.<br>I'm Currently Learning Cyber Security
 
 
 ## 🌐 Socials:
